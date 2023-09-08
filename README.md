@@ -1,0 +1,1 @@
+# fizik-9-sinif-1-donem-32
